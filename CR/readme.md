@@ -1,1 +1,1 @@
-Clasy royale files
+Clash royale files
